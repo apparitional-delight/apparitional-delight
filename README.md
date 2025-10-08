@@ -6,7 +6,7 @@
 
 [straw](https://danganyuri.straw.page/)
 &nbsp;⨳
-[pronouns](https://pronouns.cc/@ghostlysorrows)
+[guns.lol](https://guns.lol/ghostlady)
 &nbsp;⨳
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
