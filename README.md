@@ -2,6 +2,15 @@
 
 <p align="center"> <sub> i like r1999
 
+<div align="center">
+
+[straw](https://danganyuri.straw.page/)
+&nbsp;⨳
+[pronouns](https://pronouns.cc/@ghostlysorrows)
+&nbsp;⨳
+[linktree](https://linktr.ee/ghostlysorrows)
+&nbsp;&nbsp;
+
 <p align="center"> <sub> art by : @rararanndoseru
 <!--
 **apparitional-joice/apparitional-joice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
