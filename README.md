@@ -5,11 +5,12 @@
 <div align="center">
 
 [straw](https://danganyuri.straw.page/)
-&nbsp;⨳
+&nbsp;|
 [guns.lol](https://guns.lol/ghostlady)
-&nbsp;⨳
+&nbsp;|
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
+
 
 <p align="center"> <sub> art by : @rararanndoseru
 <!--
