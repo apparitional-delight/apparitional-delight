@@ -6,7 +6,7 @@
 
 [straw](https://reverse1999.straw.page/)
 &nbsp;|
-[guns.lol](https://guns.lol/ghostlady)
+[carrd](https://ghostlady.carrd.co))
 &nbsp;|
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
