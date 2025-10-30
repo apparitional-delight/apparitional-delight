@@ -5,8 +5,7 @@
 
 <div align="center">
 
-[straw](https://reverse1999.straw.page/)
-&nbsp;|
+[straw](https://reverse1999.straw.page/)&nbsp;|
 [carrd](https://ghostlady.carrd.co)
 &nbsp;|
 [linktree](https://linktr.ee/ghostlysorrows)
