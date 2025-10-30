@@ -1,6 +1,7 @@
-![image](https://github.com/user-attachments/assets/4319be7c-43eb-47ae-bff1-4619ab3396b9)
+![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSikzI8MaZ5pB-pgH34WF5TRDldLYBN5uiQ-uQkLkQfBYFokpEGRxrmhCzf&s=10![image](https://github.com/user-attachments/assets/541519ac-9a12-4bd8-a39f-e5156b6f56a8)
+)
 
-<p align="center"> i like r1999
+<p align="center"> "I don't like causing trouble for the others." 
 
 <div align="center">
 
