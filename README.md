@@ -1,7 +1,7 @@
-![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSikzI8MaZ5pB-pgH34WF5TRDldLYBN5uiQ-uQkLkQfBYFokpEGRxrmhCzf&s=10![image](https://github.com/user-attachments/assets/541519ac-9a12-4bd8-a39f-e5156b6f56a8)
-)
+![image](https://preview.redd.it/reverse-1999-vertin-x-schneider-v0-8n500gfufkxb1.jpg?auto=webp&s=3be0b6a4268f2cc097b2ea07091dc7fb036088c4)
 
-<p align="center"> <sub>"I don't like causing trouble for the others." 
+
+<p align="center"> <sub>
 
 <div align="center">
 
@@ -11,7 +11,7 @@
 &nbsp;&nbsp;
 
 
-<p align="center"> <sub> art by : official pjsk
+<p align="center"> <sub> art by : official r1999
 <!--
 **apparitional-joice/apparitional-joice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
