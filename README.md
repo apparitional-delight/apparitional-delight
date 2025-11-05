@@ -5,13 +5,14 @@
 
 <div align="center">
 
-[straw](https://reverse1999.straw.page/)&nbsp;|
-[carrd](https://ghostlady.carrd.co)&nbsp;|
+&nbsp;&nbsp;
+[straw](https://reverse1999.straw.page/)⠀
+[carrd](https://ghostlady.carrd.co)⠀
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
 
 
-<p align="center"> <sub> art by : official r1999
+<p align="center"> <sub> art by : reverse 1999
 <!--
 **apparitional-joice/apparitional-joice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
